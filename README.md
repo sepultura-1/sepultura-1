@@ -3,4 +3,4 @@
 - Meu nome e Alan
 - Sou do 1B
 
-![](https://media.tenor.com/LHTWGmYkJekAAAAC/seu-idioma.gif)
+![](https://media.tenor.com/J1jNpBUkqkYAAAAC/cr7-calma.gif)
